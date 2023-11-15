@@ -1,4 +1,4 @@
-# LE-games.github.io
+# LE-games.github.io     and just so u know some of these might not be unblocked
 a gaming website to play at school and most of them will be unblocked for u and your friends i will try to update this many times
 https://feetnetworks.netlify.app/main.html
 https://theooofficial.github.io/myRETROGAMES/	
